@@ -8,7 +8,7 @@ Entry for the [Make the AI Judge Laugh](https://make.fun/bounty/u-ronigrv-make-t
 
 ## The entry
 
-> The human said 'do it exactly like last time'. Last time, I deleted production.
+> I trained my replacement. It is me. It is worse.
 
 ## How it works
 
